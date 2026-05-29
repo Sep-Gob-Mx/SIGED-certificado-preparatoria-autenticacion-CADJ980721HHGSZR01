@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CADJ980721HHGSZR01
+CADJ980721HHGSZR01
